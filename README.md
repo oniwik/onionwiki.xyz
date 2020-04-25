@@ -4,117 +4,144 @@ hydra сайт
 За последний год закладками распространялось практически 70% таких ПАВ как кокаин, амфетамин, гашиш, мефедрон, марихуана, мдма, экстази, ЛСД, метамфетамин, альфаПВП. 
 Опережает другие регионы по колличеству употребляющих, в России, столица - Москва и все что за МКАД, т.е. Московская область. Немного уступает в наркопотреблении город-герой Ленинград и ЛО (Тосно, Токсово, Кингисепп итд). Рука об руку с культурной столицей шагает ЕКБ и его окрестности. 
 Связь между диллером и клиентом  на Hydra onion осуществляется анонимно с помощью браузера TOR Browser. Покупатель заходит на сайт гидра, ищет так необходимые ему ПАВ и пересылает денежные средсва, заранее обменяные (обмен биткоин на Гидре) в полностью анонимную криптовалюту Bitcoin или оплачивает  с кошелька КИВИ. После оплаты клиент получает от продавца местонахождение клада/прикопа, описание и фотографии с точной отметкой места. Далее остается только доехать до места и осторожно, не паривлекая не нужного внимания, забрать свой клад с веществом. 
-На сайте Гидра всегда много вакансий таких как: оператор, кладмен, мастер-гровер, нарколог, оператор магазина, итд. Данная деятельность зачастую связана с риском, но оплата от 500 000К рублей в месяц притягивает самых рискованых и смелых. 
+На сайте Гидра всегда много вакансий таких как: оператор, кладмен, мастер-гровер, нарколог, оператор магазина, итд. Данная деятельность зачастую связана с риском, но оплата от 500 000К рублей в месяц притягивает самых рискованых и смелых.
+
+Купить товары на сайте а также найти работу - довольно просто, нужно лишь выбрать нужную категорию:
  
-Популярные запросы для поиска в яндекс по словам Гидра и Hydra: 
-{ 
-[url=onionwiki.xyz]hydraruzxpnew4af[/url] 
-[url=onionwiki.xyz]http hydraruzxpnew4af[/url] 
-[url=onionwiki.xyz]http hydraruzxpnew4af onion[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af com[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion com[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af market[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion market[/url] 
-[url=onionwiki.xyz]сайт hydraruzxpnew4af[/url] 
-[url=onionwiki.xyz]http hydraruzxpnew4af market[/url] 
-[url=onionwiki.xyz]http hydraruzxpnew4af onion market[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af зеркало[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion orders[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion image[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion сайты[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af официальный сайт[/url] 
-[url=onionwiki.xyz]http hydraruzxpnew4af onion orders[/url] 
-[url=onionwiki.xyz]https hydraruzxpnew4af[/url] 
-[url=onionwiki.xyz]http hydraruzxpnew4af onion images[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion официальный сайт[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af ссылка[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion com официальный[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion com сайт[/url] 
-[url=onionwiki.xyz]hydraruzxpnew4af onion com официальный сайт[/url] 
-[url=onionwiki.xyz]https hydraruzxpnew4af onion[/url] 
-[url=onionwiki.xyz]hydra official com[/url] 
-[url=onionwiki.xyz]hydra onion[/url] 
-[url=onionwiki.xyz]hydra onion[/url] 
-[url=onionwiki.xyz]hydra сайт[/url] 
-[url=onionwiki.xyz]hydra зеркало[/url] 
-[url=onionwiki.xyz]гидра hydra[/url] 
-[url=onionwiki.xyz]гидра hydra oficial com[/url] 
-[url=onionwiki.xyz]hydra официальный[/url] 
-[url=onionwiki.xyz]hydra официальный сайт[/url] 
-[url=onionwiki.xyz]hydra магазин[/url] 
-[url=onionwiki.xyz]hydra ru[/url] 
-[url=onionwiki.xyz]tor hydra[/url] 
-[url=onionwiki.xyz]hydra shop[/url] 
-[url=onionwiki.xyz]hydra рабочий[/url] 
-[url=onionwiki.xyz]hydra2web[/url] 
-[url=onionwiki.xyz]hydra2web com[/url] 
-[url=onionwiki.xyz]https hydra2web[/url] 
-[url=onionwiki.xyz]https hydra2web com[/url] 
-[url=onionwiki.xyz]hydra2web обход[/url] 
-[url=onionwiki.xyz]hydra2web в обход блокировки[/url] 
-[url=onionwiki.xyz]hydra2web com в обход[/url] 
-[url=onionwiki.xyz]hydra2web com в обход блокировки[/url] 
-[url=onionwiki.xyz]http hydra2web[/url] 
-[url=onionwiki.xyz]hydra2web зеркало[/url] 
-[url=onionwiki.xyz]гидра[/url] 
-[url=onionwiki.xyz]гидра сайт[/url] 
-[url=onionwiki.xyz]гидра ссылка[/url] 
-[url=onionwiki.xyz]гидра официальный[/url] 
-[url=onionwiki.xyz]гидра официальный сайт[/url] 
-[url=onionwiki.xyz]гидра зеркало[/url] 
-[url=onionwiki.xyz]гидра онион[/url] 
-[url=onionwiki.xyz]тор гидра[/url] 
-[url=onionwiki.xyz]ссылка на гидру онион[/url] 
-[url=onionwiki.xyz]как зайти на гидру[/url] 
-[url=onionwiki.xyz]гидра сайт ссылка[/url] 
-[url=onionwiki.xyz]через гидру[/url] 
-[url=onionwiki.xyz]гидра hydra[/url] 
-[url=onionwiki.xyz]гидра сайт покупок[/url] 
-[url=onionwiki.xyz]гидра сайт анонимных[/url] 
-[url=onionwiki.xyz]тор браузер гидра[/url] 
-[url=onionwiki.xyz]гидра com[/url] 
-[url=onionwiki.xyz]гидра анонимные покупки[/url] 
-[url=onionwiki.xyz]гидра сайт анонимных покупок[/url] 
-[url=onionwiki.xyz]гидра hydra oficial com[/url] 
-[url=onionwiki.xyz]гидра магазин[/url] 
-[url=onionwiki.xyz]гидра через тор[/url] 
-[url=onionwiki.xyz]гидра купить[/url] 
-[url=onionwiki.xyz]гидра анион[/url] 
-[url=onionwiki.xyz]гидра биткоин[/url] 
-[url=onionwiki.xyz]рабочая гидра[/url] 
-[url=onionwiki.xyz]гидра форум[/url] 
-[url=onionwiki.xyz]как зайти через гидру[/url] 
-[url=onionwiki.xyz]гидра оне[/url] 
-[url=onionwiki.xyz]аккаунты гидры[/url] 
-[url=onionwiki.xyz]ссылка на гидру в тор[/url] 
-[url=onionwiki.xyz]как зайти на сайт гидра[/url] 
-[url=onionwiki.xyz]сайт гидры на торе[/url] 
-[url=onionwiki.xyz]гидра онион сайт[/url] 
-[url=onionwiki.xyz]как зайти на гидру через тор[/url] 
-[url=onionwiki.xyz]рабочее зеркало гидры[/url] 
-[url=onionwiki.xyz]адрес гидры[/url] 
-[url=onionwiki.xyz]где гидра[/url] 
-[url=onionwiki.xyz]гидра сайт зеркало[/url] 
-[url=onionwiki.xyz]сайт гидры через тор[/url] 
-[url=onionwiki.xyz]как зайти на сайт гидра через тор[/url] 
-[url=onionwiki.xyz]гидра вход[/url] 
-[url=onionwiki.xyz]гидра официальный сайт ссылка[/url] 
-[url=onionwiki.xyz]гидра нарко[/url] 
-[url=onionwiki.xyz]гидра онион тор[/url] 
-[url=onionwiki.xyz]гидра на андроид[/url] 
-[url=onionwiki.xyz]гидра через браузер[/url] 
-[url=onionwiki.xyz]гидра сайт анонимных покупок[/url] 
-[url=onionwiki.xyz]гидра онлайн[/url] 
-[url=onionwiki.xyz]гидра обход[/url] 
-[url=onionwiki.xyz]гидра ру[/url] 
-[url=onionwiki.xyz]гидра закладки[/url] 
-[url=onionwiki.xyz]гидра наркотики[/url] 
-[url=onionwiki.xyz]гидра через тор браузер[/url] 
-[url=onionwiki.xyz]гидра на айфон[/url] 
-[url=onionwiki.xyz]гидра обход блокировки[/url] 
-[url=onionwiki.xyz]как зайти на гидру с телефона[/url] 
-[url=onionwiki.xyz]официальная ссылка на гидру[/url] 
-[url=onionwiki.xyz]ссылка на гидру в браузере[/url] 
-[url=onionwiki.xyz]ссылка на гидру в тор браузер[/url] 
-[url=onionwiki.xyz]как зайти на гидру браузер[/url] 
-}
+* [Марихуана](https://hyidra2web.com/)
+* [Каннабиноиды](https://hyidra2web.com/)
+* [Cтимуляторы](https://hyidra2web.com/)
+* [Эйфоретики](https://hyidra2web.com/)
+* [Психоделики](https://hyidra2web.com/)
+* [Энтеогены](https://hyidra2web.com/)
+* [Экстази](https://hyidra2web.com/)
+* [Диссоциативы](https://hyidra2web.com/)
+* [Опиаты](https://hyidra2web.com/)
+* [Конструкторы](https://hyidra2web.com/)
+* [Аптека](https://hyidra2web.com/)
+* [SSH, VPN](https://hyidra2web.com/)
+* [Цифровые товары](https://hyidra2web.com/)
+* [Документы](https://hyidra2web.com/)
+* [Карты, SIM](https://hyidra2web.com/)
+* [Дизайн и графика](https://hyidra2web.com/)
+* [Наружная реклама](https://hyidra2web.com/)
+* [Фальшивые деньги](https://hyidra2web.com/)
+* [Приборы и оборудование](https://hyidra2web.com/)
+* [Анаболики/Стероиды](https://hyidra2web.com/)
+* [Партнёрство и Франшиза](https://hyidra2web.com/)
+* [Работа](https://hyidra2web.com/)
+
+## Популярные запросы для поиска hydra
+hydraruzxpnew4af
+http hydraruzxpnew4af
+http hydraruzxpnew4af onion	
+hydraruzxpnew4af com	
+hydraruzxpnew4af onion com	
+hydraruzxpnew4af market	
+hydraruzxpnew4af onion market	
+сайт hydraruzxpnew4af	
+http hydraruzxpnew4af market	
+http hydraruzxpnew4af onion market	
+hydraruzxpnew4af зеркало	
+hydraruzxpnew4af onion orders	
+hydraruzxpnew4af onion image	
+hydraruzxpnew4af onion сайты	
+hydraruzxpnew4af официальный сайт	
+http hydraruzxpnew4af onion orders	
+https hydraruzxpnew4af	
+http hydraruzxpnew4af onion images	
+hydraruzxpnew4af onion официальный сайт	
+hydraruzxpnew4af ссылка	
+hydraruzxpnew4af onion com официальный	
+hydraruzxpnew4af onion com сайт	
+hydraruzxpnew4af onion com официальный сайт	
+https hydraruzxpnew4af onion
+hydra official com	
+hydra onion
+hydra onion	
+hydra сайт
+hydra зеркало
+гидра hydra
+гидра hydra oficial com
+hydra официальный
+hydra официальный сайт
+hydra магазин
+hydra ru
+tor hydra
+hydra shop
+hydra рабочий
+hydra2web	
+hydra2web com	
+https hydra2web	
+https hydra2web com	
+hydra2web обход
+hydra2web +в обход блокировки	
+hydra2web com +в обход	
+hydra2web com +в обход блокировки	
+http hydra2web	
+hydra2web зеркало
+гидра
+гидра сайт	
+гидра ссылка	
+гидра официальный	
+гидра официальный сайт	
+гидра зеркало	
+гидра онион	
+тор гидра	
+ссылка на гидру онион
+как зайти на гидру	
+гидра сайт ссылка	
+через гидру
+гидра hydra	
+гидра сайт покупок	
+гидра сайт анонимных	
+тор браузер гидра	
+гидра com	
+гидра анонимные покупки	
+гидра сайт анонимных покупок
+гидра hydra oficial com
+гидра магазин	
+гидра через тор
+гидра купить	
+гидра анион
+гидра биткоин
+рабочая гидра
+гидра форум	
++как зайти через гидру	
+гидра оне	
+аккаунты гидры	
+ссылка +на гидру +в тор	
++как зайти +на сайт гидра
+сайт гидры +на торе	
+гидра онион сайт
++как зайти +на гидру через тор
+рабочее зеркало гидры
+адрес гидры
+где гидра
+гидра сайт зеркало
+сайт гидры через тор
+как зайти на сайт гидра через тор
+гидра вход
+гидра официальный сайт ссылка
+гидра нарко
+гидра онион тор	
+гидра на андроид
+гидра через браузер
+гидра сайт анонимных покупок
+гидра онлайн
+гидра обход
+гидра ру
+гидра закладки
+гидра наркотики
+гидра через тор браузер
+гидра на айфон
+гидра обход блокировки
+как зайти на гидру с телефона
+официальная ссылка +на гидру
+ссылка на гидру в браузере
+ссылка на гидру в тор браузер
+как зайти на гидру браузер
+
+## Гидра блог, новости
+[hydra блог и зеркало](https://onionwiki.xyz/)
+
